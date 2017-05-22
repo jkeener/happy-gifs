@@ -1,0 +1,15 @@
+# Happy Gifs
+
+This is a list if gifs that make me happy. I used to have them all open as tabs, but decided it was time to clean up and share them with the world. If you are ever feeling down click a gif, it will make you feel better.
+
+- [Floppy Floof!](http://i.imgur.com/Orfwjiu.gifv)
+- [Sprinkler Frog](http://i.imgur.com/hXKBQcv.gifv)
+- [Never trust a Chinchilla to hold a balloon.](http://imgur.com/gallery/ZSkyp8F)
+- ["Shit, Did I hear Hooman unlocking the door?"](http://i.imgur.com/B6FuU9u.gifv)
+- [Life is full of obstacles](https://i.imgur.com/VOXxieT.gifv)
+- ["Hold on guys I'm coming!"](http://i.imgur.com/otvAqqB.gifv)
+- [Pig](http://i.imgur.com/He0eIYE.gifv)
+- [Hedgehog](https://i.redd.it/7vjfmbmy1rny.gif)
+- [OMG! OMG! Good morning! May I help you? - GIF on Imgur](https://imgur.com/5bzjxSR)
+
+
