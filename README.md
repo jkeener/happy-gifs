@@ -12,5 +12,4 @@ This is a list if gifs that make me happy. I used to have them all open as tabs,
 - [Hedgehog](https://i.redd.it/7vjfmbmy1rny.gif)
 - [OMG! OMG! Good morning! May I help you? - GIF on Imgur](https://imgur.com/5bzjxSR)
 - [Like a boss](http://i.imgur.com/RdLxEwB.gifv)
-
-
+- [Rock-a-Bye Corgi](http://i.imgur.com/BWPzFvL.gifv)
