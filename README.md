@@ -13,3 +13,8 @@ This is a list if gifs that make me happy. I used to have them all open as tabs,
 - [OMG! OMG! Good morning! May I help you? - GIF on Imgur](https://imgur.com/5bzjxSR)
 - [Like a boss](http://i.imgur.com/RdLxEwB.gifv)
 - [Rock-a-Bye Corgi](http://i.imgur.com/BWPzFvL.gifv)
+- [Nose in a hole](https://gfycat.com/GloomyInfamousEastrussiancoursinghounds)
+- [Riding the bike](https://gfycat.com/BelatedHelplessImago)
+- [Here come the ears](http://i.imgur.com/si3e2hu.gifv)
+- [Cheetah attack on unsuspecting dog](https://i.imgur.com/s31LiHi.gifv)
+- [Hedgehog 2](https://gfycat.com/GrimSameKookaburra)
